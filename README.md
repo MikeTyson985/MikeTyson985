@@ -7,8 +7,8 @@
 
 💞️ I’m looking to collaborate on interesting projects related to tech and innovation.
 
-📫 How to reach me: [Provide your contact info here].
+📫 How to reach me:https://www.facebook.com/thaihungdang444444
 
-😄 Pronouns: [Add your pronouns].
+😄 Pronouns:Bé Cáo.
 
 ⚡ Fun fact: I love thought-provoking quotes, and one of my favorites is: "Thà là ác quỷ còn hơn là thiên thần..."
